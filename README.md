@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @XAbsolutelyyX
+- 👀 I’m interested in computer games
+- 💞️ I’m looking to collaborate on my friends
+- ⚡ Fun fact: i have 89 k cups i brawl stars
